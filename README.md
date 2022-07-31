@@ -5,3 +5,7 @@ I'm a **Mobile Game Developer** living in Eldoret, Kenya. My first title, [Ngany
 I'm interested in trying my hand out at Frontend Development and I'm looking for opportunities to grow and further my craft.
 
 When not working, I'm likely meditating, watching anime, playing games on my PC, or hanging out with friends.
+
+Find me on [@keybetstudios on Twitter](https://twitter.com/keybetstudios)
+
+👊
