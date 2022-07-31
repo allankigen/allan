@@ -6,6 +6,6 @@ I'm interested in trying my hand out at Frontend Development and I'm looking for
 
 When not working, I'm likely meditating, watching anime, playing games on my PC, or hanging out with friends.
 
-Find me on [@keybetstudios on Twitter](https://twitter.com/keybetstudios)
+Find me at [@keybetstudios on Twitter](https://twitter.com/keybetstudios)
 
 👊
